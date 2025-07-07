@@ -1,1 +1,1 @@
-# F1-
+Formula 1, officially known as the FIA Formula One World Championship, began in 1950 as the premier class of single-seater auto racing. Though the term "Formula One" was adopted in 1946, the first official World Championship race was held at Silverstone in the United Kingdom. Italian driver Giuseppe Farina won the first championship driving for Alfa Romeo. The 1950s saw the dominance of legendary drivers like Juan Manuel Fangio, who claimed five titles with multiple teams, establishing himself as one of the sport's earliest icons.
